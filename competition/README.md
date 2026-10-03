@@ -1,0 +1,1 @@
+# Competition Index — see README
